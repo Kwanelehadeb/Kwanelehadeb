@@ -35,8 +35,10 @@ Start an entry-level cloud or software role
 
 ![WhatsApp Image 2025-11-23 at 16 20 50_c8851ebd](https://github.com/user-attachments/assets/1e073343-49e7-4150-8849-113b661bd924)
 
-
-
+## Contact
+Email: hkwanele389@gmail.com
+GitHub: https://github.com/Kwanelehadeb
+LinkedIn:https://www.linkedin.com/in/kwanele-hadebe-73818337a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 
 
